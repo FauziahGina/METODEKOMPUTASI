@@ -1,0 +1,1 @@
+praktikum 1 metode komputasi
